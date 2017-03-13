@@ -10,6 +10,6 @@ Yang bertanda tangan dibawah ini
 
 Yang membuat pernyataan,
 
-(( tanda tangan anda yang telah di scan ))
+ latihan-bab1-mrznadhira/IMG_20170313_153045.jpg 
 
 Meriza Nadhira Atika Surya
